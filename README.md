@@ -322,3 +322,9 @@ $
 
 👤 **ODOYO DANIEL**
 
+DELMUS DETAILS >> SOCIALS.
+GitHub: @DELMUS1M
+LinkedIn: LinkedIn
+DELMUS OGORA
+Twitter: @DelmusOgora
+Email : ogoradelmus1@gmai.com

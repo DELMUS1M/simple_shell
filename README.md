@@ -320,11 +320,18 @@ $
 
 👤 **OGORA DELMUS**
 
-👤 **ODOYO DANIEL**
-
-DELMUS DETAILS >> SOCIALS.
+DELMUS OGORA'S DETAILS & <<SOCIALS>>
 GitHub: @DELMUS1M
-LinkedIn: LinkedIn
+LinkedIn: LinkedIn.
 DELMUS OGORA
 Twitter: @DelmusOgora
 Email : ogoradelmus1@gmai.com
+
+👤 **ODOYO DANIEL**
+
+ODOYO DANIEL'S DETAILS & <<SOCIALS>> 
+Github : @Odoyo7
+LinkedIn: LinkedIn.
+
+Twitter : @Ody_dan7
+Email : ody.daniels7@gmail.com
